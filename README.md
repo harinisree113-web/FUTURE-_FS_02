@@ -1,1 +1,1 @@
-https://client leadmanagementsystem.lovable.app# FUTURE-_FS_02
+https://studentleadmanagementsystem.lovable.app# FUTURE-_FS_02
